@@ -14,8 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+- My name is Alen Mathew. Call me Mateo
 - I'm currently a student
 - I'm having a Professional degree in AI and Machine learning
 - I'm looking for possible ways to learn new skills
 - I'm completely new and trying to use this opportunity to learn
-- My name is Alen Mathew. Call me Mateo
